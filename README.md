@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **s566810@nwmissouri.edu**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://github.com/s566810</h3>
 <p align="left">
 </p>
 
